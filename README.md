@@ -2,7 +2,7 @@
 - 👀 I’m interested in using various types of data analystics to drive strategic decision-making.
 - 🌱 I’m currently learning Data Analytics Bootcamp 2.0 with CodeBasics.
 - 💞️ I’m looking to collaborate with stakeholders to develop a project plan
-- 📫 How to reach me www.linkedin.com/in/jamanovandu-hangara-7931a65b
+- 📫 How to reach me www.linkedin.com/in/jamanovandu-hangara-7931a65b or jamahangara@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
